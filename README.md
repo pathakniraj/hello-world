@@ -2,5 +2,5 @@
 first branch
 
 hello people
-i am niraj. i like traveling and photography which are fun when done together.
-i love mo:mo and sausages.
+I am niraj. I like traveling and photography which are fun when done together.
+I love mo:mos.
